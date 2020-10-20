@@ -1,0 +1,1 @@
+# I had orginally wanted to do my project on juuls, but after going to indianna and seeing opiod add upon opiod add, I became curious about the opiod epidemic that is impacting the midwest so heavily. Since halloween is around the corner I wanted to create something that felt like a horor film movie poster.
